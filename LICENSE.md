@@ -1,4 +1,4 @@
-# 
+# Rare Vegas Pro for PC tools is the best Vegas Pro for PC tools with proxy-editing and time-remapping. Safe, reliable, and optimized for maximum performance.
 
 
 
